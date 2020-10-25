@@ -1,2 +1,2 @@
 # Night_Owls_Presentation
-Group 6 presentation
+This is where Group 6 video is kept.
